@@ -1,1 +1,1 @@
-# Justas_Vaitkevi-ius_CV.github.io
+# Justas_Vaitkevičius_CV.github.io
